@@ -65,4 +65,4 @@ In 2025, India's bank loan growth declined to 9.6% from 19.1% in 2024, despite R
 
 ## 📬 Contact
 
-Feel free to connect with me on [LinkedIn]www.linkedin.com/in/adityaahir or reach out if you'd like to discuss the project, share feedback, or collaborate on similar work.
+Feel free to connect with me on Linkedin --> www.linkedin.com/in/adityaahir or reach out if you'd like to discuss the project, share feedback, or collaborate on similar work.
